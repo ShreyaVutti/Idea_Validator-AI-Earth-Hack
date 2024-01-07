@@ -1,0 +1,1 @@
+# Idea_Validator-AI-Earth-Hack
